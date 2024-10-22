@@ -70,7 +70,9 @@
 <br/>  
 
 
-## Github Stats  ![dd765fae39169784724c21216b569c70](https://github.com/user-attachments/assets/e0ab901e-b946-4437-9a52-0982ac24bf02)
+## Github Stats 
+https://stepik.org/cert/2619469
+![dd765fae39169784724c21216b569c70](https://github.com/user-attachments/assets/e0ab901e-b946-4437-9a52-0982ac24bf02)
 ![d4ac2fe9f48e54ea3f1cd6d52bf09d3f](https://github.com/user-attachments/assets/8bef8723-16f8-42cb-8178-7ae155028229)
 ![6cdb9eccd648fc9e82d9d9b4e266ae52](https://github.com/user-attachments/assets/8012f68c-cffe-49ca-806d-51909df5cde4)
  ![9cfbfde606652ff2df1b65e03909e8f4](https://github.com/user-attachments/assets/ab472773-8e89-4bc0-b5a3-595766ef34c6)
