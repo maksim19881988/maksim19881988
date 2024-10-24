@@ -10,7 +10,7 @@
 - 🔎Мой телеграмм👉 https://t.me/Maksim1988777  
   
 
--   
+-   Моя Курсовая Работа : https://docs.google.com/spreadsheets/d/14X7gkiRPE83oIJ4Y-eNUWOSEIsrFD5YjR1gOnQi814A/edit?gid=0#gid=0
   
 
 ![]()  
