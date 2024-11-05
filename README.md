@@ -72,6 +72,7 @@
 ## Github Stats 
 
 ![stepik-certificate-171826-16b3af7_page-0001 (1)](https://github.com/user-attachments/assets/9801edbc-222a-430c-8b42-3ade66f70519)
+![bf9de8226d4a3988d61c17c4c5876494](https://github.com/user-attachments/assets/cf03b36b-178f-4d9a-b18b-2c1195d41431)
 
 ![dd765fae39169784724c21216b569c70](https://github.com/user-attachments/assets/e0ab901e-b946-4437-9a52-0982ac24bf02)
 ![d4ac2fe9f48e54ea3f1cd6d52bf09d3f](https://github.com/user-attachments/assets/8bef8723-16f8-42cb-8178-7ae155028229)
